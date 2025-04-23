@@ -68,4 +68,10 @@ Because even now, you’re growing.
 
 ---
 
-#Faith #Wellness #Grace #PersonalGrowth #NaturalLiving
+If this speaks to your soul, let’s connect. I’d love to hear how you’re navigating your own becoming.
+
+✨ Follow along for weekly reflections. Let’s grow together — rooted and real.
+
+---
+
+**#Faith #Wellness #Grace #PersonalGrowth #NaturalLiving**
