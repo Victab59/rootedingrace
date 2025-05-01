@@ -20,28 +20,28 @@ As we move into Part 2, we expand our focus to include the voices of philosopher
 
 Before we act, we must first understand ourselves. Throughout history, thinkers and visionaries have emphasized the importance of inner clarity, critical thought, and personal responsibility as the bedrock of a meaningful life. These voices remind us that wisdom begins with self-examination.
 
-### 1\. Socrates (Greek Philosopher)
+### 1\. Socrates (Greek Philosopher) (470 BCE to 399 BCE)
 
 > “[The unexamined life is not worth living.](https://liberalarts.org.uk/the-unexamined-life-is-not-worth-living/)”  
 > — Plato's Apology 38a
 > 
 > **Reflection:** Self-awareness and critical thinking are the pillars of a meaningful life.
 
-### 2\. William Shakespeare (English Playwright)
+### 2\. William Shakespeare (English Playwright) (1564 to 1616)
 
 > “[The fault, dear Brutus, is not in our stars, but in ourselves, that we are underlings.](https://literarydevices.net/the-fault-dear-brutus/#:~:text=The%20phrase%20goes%2C%20%E2%80%9CThe%20fault%2C%20dear%20Brutus%2C%20is,is%20in%20the%20best%20interest%20of%20the%20country.)”  
 > — (Julius Caesar, Act I, Scene III, L. 140-141) — Shakespeare.
 > 
 > **Reflection:** We are responsible for our own fates, encouraging self-examination and accountability.
 
-### 3\. Dr. Nnamdi Azikiwe (First President of Nigeria)
+### 3\. Dr. Nnamdi Azikiwe (First President of Nigeria) (1904 to 1996)
 
 > “[No matter how old an individual may be, no matter if he is young or old, if he thinks in accordance with the times he is immortal.”](https://libquotes.com/nnamdi-azikiwe/quote/lbp0w4e#:~:text=No%20matter%20how%20old%20an%20individual%20may%20be%2C,K.%20A.%20B.%20Jones-Quartey%20%28Penguin%2C%201965%29%2C%20p.%20121)  
 > — Quoted in A Life of Azikiwe by K. A. B. Jones-Quartey (Penguin, 1965), p. 121.
 > 
 > **Reflection:** Adaptability is key to enduring relevance and personal resilience.
 
-### 4\. Chief Obafemi Awolowo (Nigerian Statesman)
+### 4\. Chief Obafemi Awolowo (Nigerian Statesman) (1909 to 1987)
 
 > [There is no sorrow without its alloy of joy; there is no joy without its admixture of sorrow.](https://www.obafemiawolowofoundation.com/awo_quotations.php)"  
 > — My Early Life (1968.)
@@ -66,7 +66,7 @@ Before we act, we must first understand ourselves. Throughout history, thinkers 
 > 
 > **Reflection:** Self-mastery is the foundation of leadership and freedom.
 
-### 8\. Mahatma Gandhi (Leader of the Indian Independence Movement)
+### 8\. Mahatma Gandhi (Leader of the Indian Independence Movement) (1869 to 1948)
 
 > “[We but mirror the world. All the tendencies present in the outer world are to be found in the world of our body. If we could change ourselves, the tendencies in the world would also change](https://honeycolony.com/article/gandhi-the-original-bee-for-social-change/).”
 > 
@@ -78,44 +78,44 @@ Before we act, we must first understand ourselves. Throughout history, thinkers 
 
 Resilience is not the absence of hardship, but the strength to endure and rise beyond it. These quotes reflect the spirit of those who, in the face of adversity, held fast to hope, purpose, and the belief that something better lies ahead.
 
-### 9\. Maya Angelou (American Poet and Civil Rights Activist)
+### 9\. Maya Angelou (American Poet and Civil Rights Activist) (1928 to 2014)
 
 > “[If you don't like something, change it. If you can't change it, change your attitude.](https://www.brainyquote.com/quotes/maya_angelou_101310)”
 > 
 > **Reflection:** True resilience lies not just in changing our world, but in changing our perspective when the world won't yield.
 
-### 10\. Helen Keller (American Author and Activist)
+### 10\. Helen Keller (American Author and Activist) (1880 to 1968)
 
 > “[All the world is full of suffering. It is also full of overcoming.](https://www.brainyquote.com/quotes/helen_keller_143010)”
 > 
 > **Reflection:** Hope and action rise from hardship.
 
-### 11\. Charles de Gaulle (Leader of Free France during WWII)
+### 11\. Charles de Gaulle (Leader of Free France during WWII) (1890 to 1970)
 
 > “[A man of character finds a special attractiveness in difficulty, since it is only by coming to grips with difficulty that he can realize his potentialities.](https://www.goodreads.com/author/quotes/490153.Charles_de_Gaulle)”
 > 
 > **Reflection:** Challenges shape moral character.
 
-### 12\. Wole Soyinka (Nigerian Playwright and Poet)
+### 12\. Wole Soyinka (Nigerian Playwright and Poet) (1934 – present)
 
 > “[The man dies in all who keep silent in the face of tyranny.](https://www.goodreads.com/work/quotes/2118407-the-man-died-prison-notes-of-wole-soyinka)”  
 > — *The Man Died* (New York: Harper & Row, 1972) p. 13.
 > 
 > **Reflection:** Courage in the face of injustice sustains our humanity.
 
-### 13\. Dr. Martin Luther King Jr. (American Civil Rights Leader)
+### 13\. Dr. Martin Luther King Jr. (American Civil Rights Leader) (1929 to 1968)
 
 > “[Only in the darkness can you see the stars.”](https://bookhaven.stanford.edu/2012/01/martin-luther-king-on-his-day-only-in-the-darkness-can-you-see-the-stars/)
 > 
 > **Reflection:** Even in despair, there is potential for hope and vision.
 
-### 14\. Abraham Lincoln (16th U.S. President)
+### 14\. Abraham Lincoln (16th U.S. President) (1809 to 1865)
 
 > [“I walked slowly, but I never walk backward.](https://www.americamagazine.org/politics-society/2015/02/15/i-walk-slowly-i-never-walk-backward-humanity-abraham-lincoln)”
 > 
 > **Reflection:** Steady progress is still progress.
 
-### 15\. Sir Winston Churchill (World War II British Prime Minister)
+### 15\. Sir Winston Churchill (World War II British Prime Minister) (1874 to 1965)
 
 > [“Never give in — never, never, never, never, in nothing, great or small, large or petty—never give in except to convictions of honour and good sense.](https://illuminatingfacts.com/this-is-the-lesson-never-give-in-never-give-in-never-never-never-never-in-nothing-great-or-small-large-or-petty-never-give-in-except-to-convictions-of-honor-and-good-sense-ne/)”
 > 
@@ -127,25 +127,25 @@ Resilience is not the absence of hardship, but the strength to endure and rise b
 
 Individual will is powerful, but collective unity multiplies our impact. These voices highlight the strength found in solidarity, the vision that emerges from shared purpose, and the transformative potential of working together.
 
-### 16\. Nelson Mandela (South African Anti-Apartheid Revolutionary)
+### 16\. Nelson Mandela (South African Anti-Apartheid Revolutionary) (1918 to 2013)
 
 > [“I am not a saint, unless you think of a saint as a sinner who keeps on trying.”](https://www.goodreads.com/quotes/40281-i-am-not-a-saint-unless-you-think-of-a)
 > 
 > **Reflection:** Persistence and humility are keys to transformation.
 
-### 17\. Julius Nyerere (First President of Tanzania)
+### 17\. Julius Nyerere (First President of Tanzania) (1922 to 1999)
 
 > [“Without unity, there is no future for Africa.”](https://www.juliusnyerere.org/resources/view/nyerere_without_unity_there_is_no_future_for_africa)
 > 
 > **Reflection:** Collective purpose is foundational to national progress.
 
-### 18\. Kwame Nkrumah (First Prime Minister and President of Ghana)
+### 18\. Kwame Nkrumah (First Prime Minister and President of Ghana) (1909 to 1972)
 
 > [“We face neither East nor West: we face forward.”](https://orijinculture.com/community/ghana-face-east-west-face-nkrumahs-ideology-needed/)
 > 
 > **Reflection:** True independence is defined by self-determined direction.
 
-### 19\. Dr. Kenneth Kaunda (First President of Zambia)
+### 19\. Dr. Kenneth Kaunda (First President of Zambia) (1924 to 2021)
 
 > “[The inability of those in power to still the voices of their own consciences is the great force leading to change.](https://www.inspirationalstories.com/quotes/the-inability-of-those-in-power-to-of-kenneth-kaunda-quote/)"
 > 
