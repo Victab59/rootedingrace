@@ -43,7 +43,7 @@ Before we act, we must first understand ourselves. Throughout history, thinkers 
 
 ### 4\. Chief Obafemi Awolowo (Nigerian Statesman)
 
-> “[After darkness comes the glorious dawn. There is no sorrow without its alloy of joy; there is no joy without its admixture of sorrow. Behind the ugly terrible mask of misfortune lies the beautiful soothing countenance of prosperity. So, tear the mask!](https://www.obafemiawolowofoundation.com/awo_quotations.php)"  
+> [There is no sorrow without its alloy of joy; there is no joy without its admixture of sorrow.](https://www.obafemiawolowofoundation.com/awo_quotations.php)"  
 > — My Early Life (1968.)
 > 
 > **Reflection:** Within every struggle, there is the potential for growth and transformation.
@@ -86,19 +86,19 @@ Resilience is not the absence of hardship, but the strength to endure and rise b
 
 ### 10\. Helen Keller (American Author and Activist)
 
-> “[Although the world is full of suffering, it is full also of the overcoming of it.](https://www.brainyquote.com/quotes/helen_keller_143010)”
+> “[All the world is full of suffering. It is also full of overcoming.](https://www.brainyquote.com/quotes/helen_keller_143010)”
 > 
 > **Reflection:** Hope and action rise from hardship.
 
 ### 11\. Charles de Gaulle (Leader of Free France during WWII)
 
-> “[Difficulties mastered are opportunities won](https://www.inspiringquotes.us/author/7226-winston-churchill/about-difficulty).”
+> “[A man of character finds a special attractiveness in difficulty, since it is only by coming to grips with difficulty that he can realize his potentialities.](https://www.goodreads.com/author/quotes/490153.Charles_de_Gaulle)”
 > 
 > **Reflection:** Challenges shape moral character.
 
 ### 12\. Wole Soyinka (Nigerian Playwright and Poet)
 
-> “[The man dies in all who keep silent in the face of tyranny.”](https://en.wikiquote.org/wiki/Wole_Soyinka)  
+> “[The man dies in all who keep silent in the face of tyranny.](https://www.goodreads.com/work/quotes/2118407-the-man-died-prison-notes-of-wole-soyinka)”  
 > — *The Man Died* (New York: Harper & Row, 1972) p. 13.
 > 
 > **Reflection:** Courage in the face of injustice sustains our humanity.
