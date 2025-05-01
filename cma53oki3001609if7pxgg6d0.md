@@ -147,7 +147,7 @@ Individual will is powerful, but collective unity multiplies our impact. These v
 
 ### 19\. Dr. Kenneth Kaunda (First President of Zambia)
 
-> “"[The inability of those in power to still the voices of their own consciences is the great force leading to change."](https://www.juliusnyerere.org/resources/view/nyerere_without_unity_there_is_no_future_for_africa)
+> “[The inability of those in power to still the voices of their own consciences is the great force leading to change.](https://www.inspirationalstories.com/quotes/the-inability-of-those-in-power-to-of-kenneth-kaunda-quote/)"
 > 
 > **Reflection:** Moral conscience can drive national healing.
 
